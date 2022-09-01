@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kaleidoscopedd, you can call me Vee.
 - 👀 I’m interested in cataloging, coding, books, video games, crafts, horror, science fiction & witchcraft.
-- 🌱 I’m currently working on my BS in Information & Library Science with an expected graduation date of Dec. '21.
+- 🌱 BS Information and Library Science '21
 - 💞️ I’m looking to collaborate on anything & everything! I love learning, plus I love to help.
 - 📫 How to reach me: vam.mead@gmail.com
 
